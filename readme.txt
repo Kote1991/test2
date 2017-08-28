@@ -1,0 +1,1 @@
+Simple way of GITHUB
